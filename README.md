@@ -7,3 +7,4 @@ The primary characteristic is the signature sound of the trap music and have a t
 
 LABELS: EURO POP EURO RAP MUSIC SONG TRAP
 LOCATION: ΑΘΉΝΑ, ΕΛΛΆΔΑ
+https://youtu.be/Cxjo2uoAq-U
